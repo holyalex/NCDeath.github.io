@@ -1,2 +1,0 @@
-# holyalex.github.io
-NCD
